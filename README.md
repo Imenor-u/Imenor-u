@@ -1,5 +1,6 @@
 ### Hii, i'm Idoia
 
+https://github.com/Imenor-u/Imenor-u/assets/99250181/0cd35f26-66c1-47f9-a281-a2ae84d7cfd3
 <!--
 **Imenor-u/Imenor-u** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
