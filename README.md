@@ -1,6 +1,6 @@
-### Hii, i'm Idoia 🙋
+### Hii, i'm Idoia
 
-C:\Users\imeno\OneDrive\Escritorio\2875568.jpg
+https://www.freepik.es/vector-premium/programadora-femenina-mujer-escribiendo-codigo-administrador-contenido-chica-joven-que-trabaja-ilustracion-vector-computadora-portatil-programador-software-mujer-lenguaje-informatico-escrito-autonomo_18562353.htm
 
 <!--
 **Imenor-u/Imenor-u** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
