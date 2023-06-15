@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hii, i'm Idoia 🙋
+
+C:\Users\imeno\OneDrive\Escritorio\2875568.jpg
 
 <!--
 **Imenor-u/Imenor-u** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
