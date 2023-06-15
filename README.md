@@ -1,7 +1,5 @@
 ### Hii, i'm Idoia
 
-https://www.freepik.es/vector-premium/programadora-femenina-mujer-escribiendo-codigo-administrador-contenido-chica-joven-que-trabaja-ilustracion-vector-computadora-portatil-programador-software-mujer-lenguaje-informatico-escrito-autonomo_18562353.htm
-
 <!--
 **Imenor-u/Imenor-u** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
